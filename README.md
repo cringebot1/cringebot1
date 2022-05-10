@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @cringebot1
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+cringebot1/cringebot1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+0000101000101010010101010100010010101010101010101001001010000000010010000101010101010101010010101010101010101010010101010000001111
+/hack roblox.com
+/generate 1000000000000000000000000 robux to BxnGames
